@@ -1,8 +1,8 @@
 # free-chatgpt
 ### 长期更新公布：ChatGPT 最新国内可用免费共享公益站
 #### 这里会公布免费共享镜像站的最新地址：
-#### Free ChatGPT 更稳定免费公益站：[https://hai.dongstop.link/](https://hai.dongstop.link/) 👈推荐
-#### Free ChatGPT 长期免费公益站：[https://chat.liangji.eu.org/](https://chat.liangji.eu.org/) 👈推荐
+#### Free ChatGPT 更稳定免费公益站：[https://hai.dongstop.link/](https://hai.dongstop.link/) [👈推荐](https://cc.adone.eu.org/)
+#### Free ChatGPT 长期免费公益站：[https://chat.liangji.eu.org/](https://chat.liangji.eu.org/) [👈推荐](https://hai.dongstop.link/)
 #### ChatGPT 国粹版 脏话助手：[https://sbai.dongstop.link/](https://sbai.dongstop.link/)
 #### ChatGPT 亲妈版：[https://ma.dongstop.link/](https://ma.dongstop.link/)
 #### ChatGPT 公益版：[https://ai.dongstop.link/](https://ai.dongstop.link/) 已被 gfw 屏蔽
