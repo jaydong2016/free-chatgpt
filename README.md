@@ -4,8 +4,7 @@
 #### Free ChatGPT 更稳定免费公益站：[https://hai.dongstop.link/](https://hai.dongstop.link/) [👈推荐](https://cc.adone.eu.org/)
 #### Free ChatGPT 长期免费公益站：[https://chat.liangji.eu.org/](https://chat.liangji.eu.org/) [👈推荐](https://hai.dongstop.link/)
 #### ChatGPT 国粹版 脏话助手：[https://sbai.dongstop.link/](https://sbai.dongstop.link/)
-#### ChatGPT 公益版2：https://ai2.dongstop.link/
-#### ChatGPT Free 免费：https://ai.liangji.eu.org/ 👈
+#### ChatGPT Free 免费：https://ai2.dongstop.link/ 👈👈
 #### ChatGPT 亲妈版：[https://ma.dongstop.link/](https://ma.dongstop.link/)
 
 ##### 以上站点免费使用，国内环境打开即用，非常流畅舒服
